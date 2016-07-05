@@ -2,4 +2,4 @@
 
 hi all
 
-i ma here to learn and transfer my knwoledge to others
+i am here to learn and transfer my knwoledge to others
